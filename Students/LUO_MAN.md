@@ -1,4 +1,4 @@
-**Sanae Takaichi Became the New Japanese Prime Minister**
+# Sanae Takaichi Became the New Japanese Prime Minister
 
 Sanae Takaichi has been voted as the new Japanese prime minister. She is the first female prime minister of Japan.
 
